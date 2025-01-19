@@ -14,10 +14,7 @@ PSP WISH ME LUCK IM GONNA FAIL 3 SUBJECTS PROBALLY DIEIOZOXO PSLSHELP ME IM GOAN
 *signing links*:
 
  [atabook!](https://callmeyourangel.atabook.org/)
- 
-|| 
 
-[color my tree!](https://colormytree.me/2024/01JEB5ERZQF90G9505BHQZKS9S)
 
 ||
 
