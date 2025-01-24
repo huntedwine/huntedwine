@@ -11,6 +11,7 @@ PLEASE WISH ME LUCK IM GONNA FAIL MY GRADES.
 
 - **-KAIRO , ANGELO .**! yes i do go by a different name every second leav eme alons ://.. close people can call me lennox (len)
 - i'm a he/him, they/them are fine but please no she/her
+- i'm a gemini in june (why the hell zodiacs are so confusing i thiught i was a cancer all laong ugh)
 - i'm a transmasc 'nd gay
 - **4teen**, 18+ people are fine with me please dont be a creep 
 - i block freely.
